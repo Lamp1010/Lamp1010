@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Lamp1010
+- 👀 I’m interested in stuff
+- 🌱 I’m currently learning other stuff
+- 💞️ I’m looking to collaborate on fun stuff
